@@ -1,8 +1,6 @@
 # Breno Treviso
 
-I’m Breno. I was born in Brazil, and I’ve called London home since 2018.
-
-I work as a creator economy and content strategist: one-to-one mentorship for creators, and consulting for brands and teams that already work with them.
+I work as a creator economy and content strategist: 1:1 mentorship for creators, and consulting for brands and teams that already work with them.
 
 ## Open guides
 
